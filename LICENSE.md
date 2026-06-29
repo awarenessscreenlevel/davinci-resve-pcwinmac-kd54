@@ -1,4 +1,4 @@
-# 
+# Turbo DaVinci Resolve filtros para Mac OS | Profesional DaVinci Resolve filtros para PC Windows. Con preajustes de exportación y integración de chat — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
